@@ -4,7 +4,7 @@
 
 [Chia sẽ địa điểm trên Google map](https://goo.gl/maps/ZAzVMCgx4S4X4A55A)
 
-[Facebook](https://www.facebook.com/BsNguyenChiThanh)
+[Facebook](https://www.facebook.com/BsNgChiThanh?mibextid=kFxxJD)
 
 [Zalo](http://zalo.me/0914678254)
 
