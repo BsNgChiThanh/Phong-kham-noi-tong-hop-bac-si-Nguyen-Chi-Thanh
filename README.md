@@ -1,6 +1,6 @@
 # PHÒNG KHÁM NỘI TỔNG HỢP BÁC SĨ CHUYÊN KHOA CẤP 1 NGUYỄN CHÍ THÀNH #
 
-# **[BẤM VÀO ĐÂY ĐỂ XEM TRANG WEB CÁ NHÂN](https://sites.google.com/view/ngchithanh)** #
+# **[BẤM VÀO ĐÂY ĐỂ XEM TRANG WEB CÁ NHÂN](https://sites.google.com/view/bsnguyenchithanh)** #
 
 [Chia sẽ địa điểm trên Google map](https://goo.gl/maps/ZAzVMCgx4S4X4A55A)
 
